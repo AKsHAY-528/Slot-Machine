@@ -4,7 +4,6 @@
 ✨ Spin the reels, test your luck, and hit the jackpot! ✨
 
 
-
 🚀 Features
 
 🎲 Randomized Slot Machine Spins 🎲
