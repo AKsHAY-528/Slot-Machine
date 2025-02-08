@@ -1,7 +1,6 @@
 🎰 Welcome to the Ultimate Slot Machine Game!
 
 
-
 ✨ Spin the reels, test your luck, and hit the jackpot! ✨
 
 
