@@ -11,7 +11,8 @@
 💸 Customizable Betting System 💸
 
 
-🎯 Multiple Paylines for More Winning Chances 🎯
+🎯 Multiple Paylines for More Winning Chances 🎯 
+
 
 
 🏆 Winning Calculation Based on Symbols 🏆
